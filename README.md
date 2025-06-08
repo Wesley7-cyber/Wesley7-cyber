@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Wesley7-cyber
-- 👀 I’m interested in Basketball 🏀 karate 🥋
+- 👀 I’m interested in Basketball 🏀 karate 🥋 IT 💻 Modelling 🕴🏾
 - 🌱 I’m currently learning code 
 - 💞️ I’m looking to collaborate on anything 
 - 📫 How to reach me wesleyruddock752@gmail.com 
